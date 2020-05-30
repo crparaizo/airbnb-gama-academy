@@ -1,3 +1,6 @@
+Slide TREINAMENTO: https://docs.google.com/presentation/d/1pZEu5CrBXLqfgxeKp_GStU6vBGJ2oUXbuBxO_jdMmSQ/edit#slide=id.g8730e6c658_0_348
+
+
 # Fake Airbnb - Gama Academy
 
 Aoba! Se você chegou até aqui, é porque sobreviveu mais uma semana no Gama Experience e, agora, vamos reforçar os conhecimentos adquiridos nas aulas online e presenciais. Parafraseando o ET Bilú: "Busquem conhecimento!".
